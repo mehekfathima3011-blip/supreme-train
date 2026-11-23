@@ -14,10 +14,8 @@ Students and young working professionals.
 Instagram
 
 ## Content Ideas
-1. Coffee-making reels
-2. Behind-the-scenes videos
-3. Customer reviews
-4. Special discount posts
+1. 5. Influencer collaboration reels
+6. Customer-generated content
 
 ## Campaign Duration
 7 Days
